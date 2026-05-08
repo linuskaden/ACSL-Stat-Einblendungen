@@ -1,1 +1,0 @@
-# ACSL-Stat-Einblendungen
